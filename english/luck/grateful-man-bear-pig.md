@@ -3,7 +3,7 @@ eyes appear to dance with an inner light, while the grotesque folds of its snout
 to contort into a configuration that could charitably be described as a smile.
 
 "Finally, you have banished the fork from my domain!" exults the Man-Bear-Pig. "Come!
-Let me embrace you and adore you to the full measure of your merit."
+Let me embrace you and venerate you to the full measure of your merit."
 
 The bulk of the Man-Bear-Pig looms over you, and it's colossal, hair, trottered arms
 enfold you ineluctably.
